@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Vanshika937
+- 👋 Hi, I’m Vanshika
 - 👀 I’m interested in dancing ,coding ,singing and reading
 - 🌱 I’m currently learning Android Application Development
 - 📫 How to reach me ... svanshika937@gmail.com
